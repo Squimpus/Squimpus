@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Squimpus
+- 💻 I’m an amateur dev
+- 🌱 I’m currently learning python
+- 🎮 I’m looking to collaborate on a roblox gamr
+- 📫 How to reach me - Indeletingthis on discord
